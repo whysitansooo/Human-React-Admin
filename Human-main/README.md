@@ -1,0 +1,1 @@
+Human is a transformational self development website that ensures your productivity in career , keep checks on your mental health , helps you regulate your finances , give you suggestions for anything realted to your ownself
